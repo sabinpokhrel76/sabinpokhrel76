@@ -10,6 +10,7 @@
 - 🎓 BSc Physics & Statistics, major in Statistics, **Central Campus of Technology**, Dharan (graduated 2026)
 - 📊 Project: *Factors associated with childhood stunting in Nepal: an analysis of the Nepal Demographic and Health Survey (NDHS 2022)*
 - 📫 Reach me: **pokhrelsabin76@gmail.com**
+- 📞 Phone: **+977 981-0411223**
 
 <h3 align="left">Statistics tools</h3>
 <p align="left">
